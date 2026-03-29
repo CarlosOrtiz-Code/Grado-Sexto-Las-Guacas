@@ -1,1 +1,0 @@
-# Grado-Sexto-Las-Guacas
